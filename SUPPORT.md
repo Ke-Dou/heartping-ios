@@ -3,7 +3,7 @@
 Welcome to HeartPing support! We're here to help you stay connected with your loved ones.
 
 ## 📧 Contact Support
-For any questions or issues, please email: **your-email@example.com**
+For any questions or issues, please email: **koipapa8@gmail.com**
 
 ## 🤔 Frequently Asked Questions
 
